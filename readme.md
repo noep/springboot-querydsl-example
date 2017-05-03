@@ -18,4 +18,3 @@
 
 - http://wonwoo.ml/index.php/post/597
 - http://millky.com/@origoni/post/1155?language=ko_kr
-ll
